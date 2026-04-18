@@ -14,7 +14,7 @@ $\text{\color{#F16A4A}──────── ⠀✶⠀ ───────�
 \
 [rentry](https://rentry.co/andrewdoe)  [新book](https://sundozed.atabook.org/)  [pronouns.cc](https://pronouns.cc/@scamduo)\
 \
-$\text{\color{#F16A4A}aka}$  [shypills](https://github.com/shypills)</sub>\
+$\text{\color{#F16A4A}aka}$  [tuirse](https://github.com/tuirse)</sub>\
 ⠀
 ⠀
 
