@@ -1,20 +1,19 @@
 <div align="center">
   
   
-![](https://komarev.com/ghpvc/?username=shypills&color=F16A4A&label=+++visitors+++𓈒+++)\
+![](https://komarev.com/ghpvc/?username=shypills&color=776C8B&label=+++visitors+++𓈒+++)\
 \
-<sub>$\text{\color{#FEE8C3}andrew  ou  cody}$\
-$\text{\color{#FEE8C3}hehim  fifteen  iayor}$\
+<sub>$\text{\color{#D7CEBC}andrew  𓎢𓎟  cody}$\
+$\text{\color{#D7CEBC}hehim  fifteen  iayor}$\
 \
-$\text{\color{#FEE8C3}my public chat is almost always off}$\
-$\text{\color{#FEE8C3}therefore i prefer whispers for interactions}$\
-$\text{\color{#FEE8C3}however i am extremely open to c+h whenever}$\
+$\text{\color{#D7CEBC}pub. chat off — always whisper me}$\
+$\text{\color{#D7CEBC}extremely cuddle friendly!}$\
 \
-$\text{\color{#F16A4A}──────── ⠀✶⠀ ────────}$\
+$\text{\color{#776C8B}──────── ⠀✶⠀ ────────}$\
 \
 [rentry](https://rentry.co/andrewdoe)  [新book](https://sundozed.atabook.org/)  [pronouns.cc](https://pronouns.cc/@scamduo)\
 \
-$\text{\color{#F16A4A}aka}$  [tuirse](https://github.com/tuirse)</sub>\
+$\text{\color{#776C8B}aka}$  [tuirse](https://github.com/tuirse)</sub>\
 ⠀
 ⠀
 
