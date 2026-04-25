@@ -13,7 +13,7 @@ $\text{\color{#2A6A69}──────── ⠀✶⠀ ───────�
 \
 [rentry](https://rentry.co/andrewdoe)  [新book](https://sundozed.atabook.org/)  [pronouns.cc](https://pronouns.cc/@scamduo)\
 \
-$\text{\color{#2A6A69}aka}$  [tuirse](https://github.com/tuirse)</sub>\
+$\text{\color{#2A6A69}aka}$  [crowfies](https://github.com/crowfies)</sub>\
 ⠀
 ⠀
 
