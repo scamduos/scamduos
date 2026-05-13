@@ -1,15 +1,15 @@
 <div align="center">
   
   
-![](https://komarev.com/ghpvc/?username=shypills&color=5F4C5F&label=+++visitors+++𓈒+++)\
+![](https://komarev.com/ghpvc/?username=shypills&color=919A89&label=+++visitors+++𓈒+++)\
 \
-<sub>$\text{\color{#C98733}andrew  𓎢𓎟  charlie}$\
-$\text{\color{#C98733}hehim  fifteen  iayor}$\
+<sub>$\text{\color{#E3B67F}andrew  𓎢𓎟  charlie}$\
+$\text{\color{#E3B67F}hehim  fifteen  iayor}$\
 \
-$\text{\color{#C98733}public chat off — w2i preferred}$\
-$\text{\color{#C98733}extremely cuddle friendly!}$\
+$\text{\color{#E3B67F}public chat off — w2i preferred}$\
+$\text{\color{#E3B67F}extremely cuddle friendly!}$\
 \
-$\text{\color{#5F4C5F}──────── ⠀✶⠀ ────────}$\
+$\text{\color{#919A89}──────── ⠀✶⠀ ────────}$\
 \
 [rentry](https://rentry.co/andrewdoe)  [新book](https://sundozed.atabook.org/)  [pronouns.cc](https://pronouns.cc/@scamduo)
 
