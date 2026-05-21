@@ -12,7 +12,7 @@ $\text{\color{#B38A16}oppymince (musical) fans int}$\
 \
 $\text{\color{#844206}──────── ⠀✶⠀ ────────}$\
 \
-[rentry](https://rentry.co/andrewdoe)  [新book](https://sundozed.atabook.org/)  [prons.cc](https://pronouns.cc/@allium)
+[rentry](https://rentry.co/cholmondeley)  [新book](https://sundozed.atabook.org/)  [prons.cc](https://pronouns.cc/@allium)
 
 ⠀
 
